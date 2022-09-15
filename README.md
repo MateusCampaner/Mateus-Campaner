@@ -1,4 +1,4 @@
-**Name: Mateus Campaner**<br>
+**Nome: Mateus Campaner**<br>
 **LinkedIn :💼: [LinkedIn](https://www.linkedin.com/in/mateus-eduardo-campaner-800573213/)**<br>
 **E-mail 📫: [Email](mateus.campaner@edu.unifil.br)**<br> 
 
