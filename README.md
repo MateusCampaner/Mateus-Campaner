@@ -6,6 +6,7 @@ Sou estudante de Engenharia de Software de Londrina pela UniFil💻<br>
 
 **Experiencia Profissional**<br>
 
+Tata Consultancy Services - Analista de Sistemas júnior<br>
 Tata Consultancy Services - Trainee<br>
 Tata Consultancy Services - Estagiario<br>
 
